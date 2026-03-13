@@ -4,7 +4,7 @@ A Marquise shaped diamond ring features an elegant elongated cut with pointed en
 
 <p>Diamond rings have long represented love, commitment, and timeless elegance. Among the many diamond cuts available today, the marquise cut stands out for its distinctive shape and refined appearance. Originally created for European royalty, this elongated diamond design has become a favorite choice for people who want something both classic and unique.</p>
 
-<p>A <a href="https://yourwebsite.com">Marquise shaped diamond ring</a> features an elegant oval body with pointed ends that create a striking and sophisticated look. Because of its elongated shape, the marquise cut often appears larger than other diamonds of the same carat weight. This visual advantage, combined with brilliant sparkle, makes it an appealing option for engagement rings and luxury jewelry.</p>
+<p>A <a href="https://www.erayasparkle.com/collections/collections-rings-lab-grown-marquise-diamond-rings">Marquise shaped diamond ring</a> features an elegant oval body with pointed ends that create a striking and sophisticated look. Because of its elongated shape, the marquise cut often appears larger than other diamonds of the same carat weight. This visual advantage, combined with brilliant sparkle, makes it an appealing option for engagement rings and luxury jewelry.</p>
 
 <h2>What Makes the Marquise Diamond Unique</h2>
 
